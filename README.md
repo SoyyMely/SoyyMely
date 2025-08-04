@@ -1,6 +1,6 @@
 # 💫 About Me:
 ¡Hola! 👋
-Mi nombre es Lismel Gómez, Soy una apasionada programadora de 18 años de la soleada República Dominicana, siempre lista para aprender y destacar en nuevos desafíos. Me entusiasma participar en proyectos innovadores y colaborativos donde pueda aportar mi creatividad y habilidades técnicas. ¡Vamos a construir el futuro juntos! 🚀
+Mi nombre es Lismel Gómez, Soy una apasionada programadora de 19 años de la soleada República Dominicana, siempre lista para aprender y destacar en nuevos desafíos. Me entusiasma participar en proyectos innovadores y colaborativos donde pueda aportar mi creatividad y habilidades técnicas. ¡Vamos a construir el futuro juntos! 🚀
 
 
 ## 🌐 Socials:
